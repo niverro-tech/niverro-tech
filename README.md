@@ -92,8 +92,8 @@ To deliver secure, scalable, and sustainable technology solutions that help orga
 **Niverro Technologies**  
 India  
 
-Email: info@niverrotech.com  
-Website: www.niverrotech.com  
+Email: contact@niverrotech.com  
+Website: www.niverro.com  
 
 ---
 
